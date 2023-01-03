@@ -8,4 +8,4 @@
 
 # Welcome to ENTR-451
 
-This is my silly goose example
+I am really really hungry and I am thinking of making a poke bowl tonight. 
